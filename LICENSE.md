@@ -1,4 +1,4 @@
-# 
+# Get the ultimate Parallels Desktop for macOS helper with secure Parallels Desktop for macOS Helper | drag-and-drop-support + hardware-acceleration. Featuring drag-and-drop-support
 
 
 
